@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lindinha225
-- 👀 I’m interested in 
+- 👀 I’m interested in focar nos meus estudos
 - 🌱 I’m currently learning várias coisas
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
